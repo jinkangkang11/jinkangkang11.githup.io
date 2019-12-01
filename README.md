@@ -1,2 +1,2 @@
-# jinkangkang11.githup.io
+# jinkangkang11.github.io
 my
